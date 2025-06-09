@@ -1,4 +1,4 @@
-## [Jiaming Chen](https://ppjmchen.github.io/)
+## [Jiaming Chen](https://jiaming-chen.com/)
 
 I am a Ph.D. student at the University of Manchester. 
 
